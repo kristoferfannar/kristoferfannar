@@ -1,3 +1,3 @@
 BSc í Hugbúnaðarverkfræði - HR.
 
-Hóf nám haust 2021. :)
+2021 -
