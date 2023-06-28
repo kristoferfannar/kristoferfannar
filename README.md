@@ -1,5 +1,3 @@
-I see you stumbled upon my profile...
-
 I'm Kristófer, an Icelandic Software Engineering student at Reykjavik University, Iceland.
 
 I'm a second year B.Sc student, set to graduate in June 2024.
